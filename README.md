@@ -94,7 +94,7 @@
 
 
 
-<img align="center" alt="" src="https://github.com/user-attachments/assets/4392135d-4ace-4591-ac1f-2254c3efa2f1">
+<img align="center" alt="" src="https://github.com/user-attachments/assets/d05a97e4-9c30-48a1-aafd-65ceeca0d6fe">
 
 
 
@@ -103,19 +103,6 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-  ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=anuraghazra&show_icons=true&theme=dracula)
 
 
 
