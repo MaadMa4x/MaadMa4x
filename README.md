@@ -69,10 +69,11 @@
 
 
 
-<img align="center" alt="" src="https://github.com/user-attachments/assets/d05a97e4-9c30-48a1-aafd-65ceeca0d6fe">
+<img align="center" alt="" src="https://github.com/user-attachments/assets/ac3bf687-dac6-4693-b33b-f22bb4538d29">
 
 
                                                                                                    ˖˚🍓࿐✶ ₊ ˚
+
 
 
 
