@@ -43,7 +43,7 @@
 
 
 
-⠀⠀⠀⠀MARCELINE
+⠀⠀⠀Blitzø
 
 
 
@@ -69,7 +69,7 @@
 
 
 
-<img align="center" alt="" src="https://github.com/user-attachments/assets/ac3bf687-dac6-4693-b33b-f22bb4538d29">
+<img align="center" alt="" src="https://media1.tenor.com/m/HzDvZr3wNx0AAAAC/helluva-boss-helluva.gif">
 
 
                                                                                                    ˖˚🍓࿐✶ ₊ ˚
