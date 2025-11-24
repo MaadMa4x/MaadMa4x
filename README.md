@@ -1,20 +1,20 @@
 ✮⋆˙⋆｡°✩ ⋆⁺｡˚⋆˙‧₊✩₊‧˙⋆˚｡⁺⋆ ✩°｡⋆
 ⠀-⋆⭒˚☾⋆.˚ witch ⋆⭒˚☾⋆.˚
-˚˖𓍢ִ໋🌷͙֒✧˚.🎀༘⋆
-⋆｡‧˚ʚ🍓ɞ˚‧｡
+˚˖𓍢ִ͙֒✧˚.༘⋆
+⋆｡‧˚ʚɞ˚‧｡
 -  °`⟡ ִ ࣪✮🕷✮⋆˙
 
-╰┈➤- @ ⋆˚࿔ Max 𝜗𝜚˚⋆🍓★ 
+╰┈➤- @ ⋆˚࿔ Max 𝜗𝜚˚⋆★ 
 -  
 ╰┈➤-  ☆﹕17
 
 
 
-╰┈➤-──★ ˙🍓 ̟ !! .she/he .ᐟ.ᐟ
+╰┈➤-──★ ˙ !! .she/he .ᐟ.ᐟ
 
 
 
-╰┈➤-⋆✦⊹♡ Blitzø X Stolas!! >_<⋆｡‧˚ʚ🍓ɞ˚‧｡
+╰┈➤-⋆✦⊹♡ Blitzø X Stolas!!⋆｡‧˚ʚɞ˚‧｡
 
 
 
@@ -31,7 +31,7 @@
 ╰┈➤ᶻ 𝗓  Estudando Técnico em Desenvolvimento de Sistemas 
 
  ╰┈➤Do Matteo     
- ‧₊ ᵎᵎ 🍒 ⋅ ˚✮
+ ‧₊ ᵎᵎ ⋅ ˚✮
 
 
 
@@ -43,7 +43,7 @@
 
 
 
-⠀⠀⠀Blitzø
+⠀⠀⠀𖤐⋆Blitzø⋆★☆
 
 
 
@@ -72,7 +72,7 @@
 <img align="center" alt="" src="https://media1.tenor.com/m/HzDvZr3wNx0AAAAC/helluva-boss-helluva.gif">
 
 
-                                                                                                   ˖˚🍓࿐✶ ₊ ˚
+                                                                                                   ˖˚࿐✶ ⋆★ ₊ ˚
 
 
 
