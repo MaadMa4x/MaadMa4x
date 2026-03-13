@@ -77,10 +77,11 @@
 
 
 
-<img align="center" alt="" src="https://media1.tenor.com/m/HzDvZr3wNx0AAAAC/helluva-boss-helluva.gif">
+<img align="center" alt="" src="https://github.com/user-attachments/assets/16f7bc91-66f2-4d99-9035-66721d7b7f0e">
 
 
                                                                                                    ˖˚࿐✶ ⋆★ ₊ ˚
+
 
 
 
