@@ -2,7 +2,7 @@
 ⠀-⋆⭒˚☾⋆.˚ witch ⋆⭒˚☾⋆.˚
 ˚˖𓍢ִ͙֒✧˚.༘⋆
 ⋆｡‧˚ʚɞ˚‧｡
--  °`⟡ ִ ࣪✮✨𖤐⭐️✮⋆˙
+-  ✩₊˚.⋆🕸️⋆⁺₊✧
 
 ╰┈➤- @ ⋆˚࿔ Max 𝜗𝜚˚⋆★ 
 -  
@@ -14,7 +14,7 @@
 
 
 
-╰┈➤-⋆✦⊹♡ Blitzø X Stolas!!⋆｡‧˚ʚɞ˚‧｡
+╰┈➤-⋆✦⊹♡🕸️ 𝒜𝓃𝑔ℯ𝓁 🕸️!!⋆｡‧˚ʚɞ˚‧｡
 
 
 
@@ -51,7 +51,7 @@
 
 
 
-⠀⠀⠀𖤐⋆Blitzø⋆★☆
+⠀⠀⠀𖤐⋆𝖆𝖓𝖌𝖊𝖑 𝖉𝖚𝖘𝖙⋆★☆
 
 
 
@@ -77,7 +77,7 @@
 
 
 
-<img align="center" alt="" src="https://github.com/user-attachments/assets/16f7bc91-66f2-4d99-9035-66721d7b7f0e">
+<img align="center" alt="" src="https://github.com/user-attachments/assets/8342a664-95e4-4316-8ea5-031ea8314ea2">
 
 
                                                                                                    ˖˚࿐✶ ⋆★ ₊ ˚
