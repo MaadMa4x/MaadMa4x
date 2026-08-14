@@ -77,10 +77,10 @@
 
 
 
-<img align="center" alt="" src="https://github.com/user-attachments/assets/8342a664-95e4-4316-8ea5-031ea8314ea2">
+<img align="center" alt="" src="https://github.com/user-attachments/assets/e0e8d685-8954-41b8-a41b-b99c89ec1fbe">
 
 
-                                                                                                   ˖˚࿐✶ ⋆★ ₊ ˚
+                        
 
 
 
