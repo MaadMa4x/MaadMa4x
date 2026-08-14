@@ -14,7 +14,7 @@
 
 
 
-╰┈➤-⋆✦⊹♡🕸️ 𝒜𝓃𝑔ℯ𝓁 🕸️!!⋆｡‧˚ʚɞ˚‧｡
+╰┈➤-⋆✦⊹♡🕸️ powder 🕸️!!⋆｡‧˚ʚɞ˚‧｡
 
 
 
@@ -30,8 +30,7 @@
 
 ╰┈➤ᶻ 𝗓  Estudando Técnico em Desenvolvimento de Sistemas 
 
- ╰┈➤Do Matteo     
- ‧✨💫⭐️
+ ╰┈➤ ✨💫⭐️
 
      ⋆˖⁺‧₊☽◯☾₊‧⁺˖⋆
 
